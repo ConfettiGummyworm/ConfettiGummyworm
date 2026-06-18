@@ -1,1 +1,2 @@
 ![](https://64.media.tumblr.com/8c164ef1a27dff0175ce0f244df01ab7/935f7fc50b1ed053-49/s500x750/b6446510d64443656dccbbdb3d3e59d5f27148c3.gifv)
+![](https://media.tenor.com/8zsiCZIpxS8AAAAj/rainbow-stars-kidcore.gif)
