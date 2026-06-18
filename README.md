@@ -5,3 +5,6 @@
 
 $${\color{#58A6FF}Interact \space with \space Extremely \space caution \space Please \space}$$
 $${\color{red}because \space of \space red \space eyestrain \space skin}$$
+
+[Straw](https://dandruffshampoo.straw.page/)
+[Ata](https://voidscranarebolts.atabook.org/)
