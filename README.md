@@ -6,5 +6,6 @@
 
 $${\color{#58A6FF}Interact \space with \space Extremely \space caution \space Please \space}$$
 $${\color{red}because \space of \space eyestrain \space skin}$$
-
+![](https://static.wikia.nocookie.net/lapfoxtrax/images/1/15/TQBF3.png/revision/latest/scale-to-width-down/250?cb=20160130192324)
+$${\color{#58A6FF}sorry \space \space im \space shy \space person \space only \space int \space me \space first
 
