@@ -7,5 +7,7 @@
 $${\color{#58A6FF}Interact \space with \space Extremely \space caution \space Please \space}$$
 $${\color{red}because \space of \space eyestrain \space skin}$$
 ![](https://static.wikia.nocookie.net/lapfoxtrax/images/1/15/TQBF3.png/revision/latest/scale-to-width-down/250?cb=20160130192324)
-$${\color{#58A6FF}sorry \space \space im \space shy \space person \space only \space int \space me \space first
-
+$${\color{yellow}sorry \space \space im \space shy \space person \space only \space int \space me \space first}$$
+![](https://img1.picmix.com/output/pic/normal/1/2/5/9/11039521_6c941.gif)
+$${\color{#58A6FF}Interact \space with \space Extremely \space caution \space Please \space}$$
+$${\color{red}Semi \space Verbal \space because \space sometimes \space im \space struggling \space to \space speak \space or \space i \space dont \space wont \space to \space talk \space now}$$
