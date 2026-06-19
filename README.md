@@ -5,6 +5,6 @@
 ![](https://media.tenor.com/8zsiCZIpxS8AAAAj/rainbow-stars-kidcore.gif)
 
 $${\color{#58A6FF}Interact \space with \space Extremely \space caution \space Please \space}$$
-$${\color{red}because \space of \space red \space eyestrain \space skin}$$
+$${\color{red}because \space of \space eyestrain \space skin}$$
 
 
