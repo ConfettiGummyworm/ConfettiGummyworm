@@ -9,6 +9,6 @@ $${\color{red}because \space of \space eyestrain \space skin}$$
 $${\color{yellow}sorry \space \space im \space shy \space person \space only \space int \space me \space first\space I \space am \space a \space shy \space person \space so \space I \space don't \space dare \space to \space interact \space with \space others \space because \space I'm \space not \space used \space to \space it, \space except \space for \space friends \space or \space those \space closest \space to \space me \space who \space are \space used \space to \space it.}$$
 
 $${\color{red}Semi \space Verbal \space because \space sometimes \space im \space struggling \space to \space speak \space or \space i \space dont \space wont \space to \space talk \space now}$$
-![](https://img1.picmix.com/output/pic/normal/1/2/5/9/11039521_6c941.gif)
+![](https://media.tenor.com/TXprxXoXyVIAAAAM/tqbf-lapfox.gif)
 ![](https://static.wikia.nocookie.net/lapfoxtrax/images/1/15/TQBF3.png/revision/latest/scale-to-width-down/250?cb=20160130192324)
 $${\color{blue}mostly \space on \space safe \space server \space area: \space Gnb \space bakery, \space ch \space area, \space afk \space spot, \space and \space docks}$$
